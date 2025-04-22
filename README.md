@@ -26,3 +26,6 @@ Trabajar en mi autoconfianza, especialmente en situaciones académicas, como al 
 Desarrollar la constancia en mis compromisos, tanto académicos como personales. Quiero ser más disciplinado y enfocado en mis estudios, cumplir con mis plazos de entrega y mantener una rutina que me permita equilibrar el estudio con el descanso y el tiempo personal. Además, quiero seguir mejorando mis habilidades sociales y aprender a trabajar mejor en equipo, sobre todo en proyectos colaborativos.
 
 ---
+
+##Link de trello
+https://trello.com/invite/b/6807e2cc5e868171003f5f06/ATTI63abac73db72b610fb0f175220f2d138C8571965/tutosemana06
