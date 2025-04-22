@@ -27,5 +27,5 @@ Desarrollar la constancia en mis compromisos, tanto académicos como personales.
 
 ---
 
-##Link de trello
+## Link de trello
 https://trello.com/invite/b/6807e2cc5e868171003f5f06/ATTI63abac73db72b610fb0f175220f2d138C8571965/tutosemana06
